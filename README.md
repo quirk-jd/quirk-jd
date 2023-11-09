@@ -1,4 +1,4 @@
 ### Hi there 👋
 
-- 😄 Pronouns: he/hiom
+- 😄 Pronouns: he/him
 - ⚡ Fun fact: they call me JiraJared!
